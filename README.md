@@ -1,2 +1,3 @@
-# designthinking
-Actividad Visual Thinking 
+# Actividad Visual Thinking Club House
+
+
